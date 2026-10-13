@@ -1,0 +1,1 @@
+# MouseFocusPro-Privacy
